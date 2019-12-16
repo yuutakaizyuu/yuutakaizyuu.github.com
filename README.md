@@ -1,1 +1,1 @@
-# yuutakaizyuu.github.io
+# yuutakaizyuu.github.com
